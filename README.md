@@ -1,2 +1,2 @@
-furry-shame
+furry-shame-mod
 ===========
